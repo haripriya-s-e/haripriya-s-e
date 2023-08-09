@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @haripriya-s-e
 - 👀 I’m interested in too many things to list..but a few are creating new things and exploring
 - 🌱 I’m currently working a corporate job
-- 💞️ I’m looking to collaborate on innovative projects that will improve the extends of pur knowledge
+- 💞️ I’m looking to collaborate on innovative projects that will improve the extends of our knowledge
 - 📫 How to reach me? just email me on haripriyasreekumar98@gmail.com
 
 <!---
